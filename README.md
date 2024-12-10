@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @eiLuccy
 - 👀 I’m interested in ... AI inteligence
 - 🌱 I’m currently learning ... AI programing
-- 💞️ I’m looking to collaborate on ... AI works
+- 💞️ I’m looking to collaborate on ... AI 
 - 📫 How to reach me ... In my house
 - 😄 Pronouns: ... neutral imao
 - ⚡ Fun fact: ... I don`t no.
